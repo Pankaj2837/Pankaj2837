@@ -14,7 +14,7 @@
 
 - 📫 How to reach me **pankajeng34@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1dBIXABTFqmDTQ95ppyGnJbEOu43KcWWT/view?usp=drive_link](https://drive.google.com/file/d/1dBIXABTFqmDTQ95ppyGnJbEOu43KcWWT/view?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1dBIXABTFqmDTQ95ppyGnJbEOu43KcWWT/view?usp=drive_link](https://drive.google.com/file/d/1Urjq1Z36ORlPq377xkhIFK2jDN_m9zEn/view?usp=drive_link)
 
 - ⚡ Fun fact **I think i am funny**
 
